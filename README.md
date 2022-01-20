@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @woprisalive
-- 👀 I’m interested in music an tech
+- 👀 I’m interested in music and tech
 - 🌱 I’m currently learning guitar 
 - 📫 How to reach me ? just send me an email !
 
